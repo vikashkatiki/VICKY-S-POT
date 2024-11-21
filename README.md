@@ -1,1 +1,1 @@
-# VICKY-S-POT
+# VICKY'S $POT
